@@ -1,14 +1,19 @@
 " It's great to finally meet you. "
 
-Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and minding my own business. My pronouns are They / it. I am fine with interacting, I don't mind it. NULL fans or regretevator fandom feel free to interact.
+Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. NULL fans or regretevator fandom feel free to interact. 
+
+C+H , w2i , Int , dncopy is encouraged.
 
 Bigoted people, Darkshippers / Proshippers < I am not comfortable with you, Please do not interact. Thank you.
+^ I do not like FollyNull & 4saken  aswell. Interact with extra caution since these things makes me upset.
 
-Chickenparty enthusiast. (🎉🐔)
 
 (New account since I do not want to associate with those people again.)
 
-Here is my yume list: NULL (selective), Poob (Sharing) , Sayori (Softsharing) , Matador (Sharing) , Ragatha (Softsharing) , Wallter (Hypersharing)
+Here is my yume list: NULL (Mirrorsharing), Poob (Sharing) , Sayori (Softsharing) , Matador (Sharing) , Ragatha (Selective) , Wallter (Hypersharing) , Folly (Familial , Hypersharing)
+
+NULL is my main f/o. But I love my f/os equally:)
+
 Thank you for your time.
 
 Hopefully we can get along.
