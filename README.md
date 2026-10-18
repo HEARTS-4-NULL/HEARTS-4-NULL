@@ -14,6 +14,8 @@ Here is my yume list: NULL (Mirrorsharing), Poob (Sharing) , Sayori (Softsharing
 
 NULL is my main f/o. But I love my f/os equally:)
 
-Thank you for your time.
+Hopefully we can get along .
 
-Hopefully we can get along.
+<img width="2111" height="1646" alt="Untitled917" src="https://github.com/user-attachments/assets/80401611-7cca-42c9-83c3-72d430012afb" />
+
+Thank you for your time. <3
