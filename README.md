@@ -16,6 +16,7 @@ NULL is my main f/o. But I love my f/os equally:)
 
 Hopefully we can get along .
 
-<img width="2111" height="1646" alt="Untitled917" src="https://github.com/user-attachments/assets/80401611-7cca-42c9-83c3-72d430012afb" />
+<img width="360" height="360" alt="ae4cfa61b80b88e4edbc933b16861f3b" src="https://github.com/user-attachments/assets/75e601aa-6b35-495b-8288-cc8e479c4b56" />
+
 
 Thank you for your time. <3
