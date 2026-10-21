@@ -5,7 +5,8 @@ Call me Keith / Sylus or you can just call me NULL. I love to do many things suc
 C+H , w2i , Int , Do not cover entirely unless friend.
 
 Bigoted people, Darkshippers / Proshippers < I am not comfortable with you, Please do not interact. Thank you.
-^ I do not like FollyNull & 4saken  aswell. Interact with extra caution since these things makes me upset.
+
+^ I do not like FollyNull aswell. 
 
 
 (New account since I do not want to associate with those people again.)
