@@ -2,7 +2,9 @@
 
 Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. NULL fans or regretevator fandom feel free to interact. 
 
-C+H , w2i , Int , Do not cover entirely unless friend.
+I see myself as NULL. 
+
+C+H , w2i , Int , Do not cover entirely unless with permission.
 
 Bigoted people, Darkshippers / Proshippers < I am not comfortable with you, Please do not interact. Thank you.
 
@@ -11,9 +13,9 @@ Bigoted people, Darkshippers / Proshippers < I am not comfortable with you, Plea
 
 (New account since I do not want to associate with those people again.)
 
-Here is my yume list: NULL (Mirrorsharing), Poob (Sharing) , Sayori (Softsharing) , Matador (Sharing) , Ragatha (Selective) , Wallter (Hypersharing) , Folly (Familial , Hypersharing)
+Here is my yume list: Poob (Mirrorsharing) , Sayori (Softsharing) , Facty (Sharing) , Ragatha (Selective) , Wallter (Selective) , Folly (Familial , Hypersharing)
 
-NULL is my main f/o. But I love my f/os equally:)
+Poob is my main f/o. I love my f/os equally:)
 
 Hopefully we can get along .
 
