@@ -19,7 +19,7 @@ Poob is my main f/o. I love my f/os equally:)
 
 Hopefully we can get along .
 
-<img width="360" height="360" alt="ae4cfa61b80b88e4edbc933b16861f3b" src="https://github.com/user-attachments/assets/75e601aa-6b35-495b-8288-cc8e479c4b56" />
-NULL png.
+<img width="2251" height="1437" alt="Untitled943_20261023120637" src="https://github.com/user-attachments/assets/1291751d-dbb4-4618-b99d-fe2b5f1b1d65" />
+
 
 Thank you for your time. 
