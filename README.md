@@ -6,14 +6,11 @@ I see myself as NULL.
 
 C+H , w2i , Int , Do not cover entirely unless with permission.
 
-Bigoted people, Darkshippers / Proshippers < I am not comfortable with you, Please do not interact. Thank you.
-
-^ I do not like FollyNull aswell. 
-
+Profic , Proshipper / Darkshipper. Block me if you wish.
 
 (New account since I do not want to associate with those people again.)
 
-Here is my yume list: Poob (Mirrorsharing) , Sayori (Softsharing) , Facty (Sharing) , Ragatha (Selective) , Wallter (Selective) , Folly (Familial , Hypersharing)
+Here is my yume list: Poob (Nullsharing) , Sayori (Non-sharing) , Facty (Sharing) , Ragatha (Selective) , Wallter (Non-sharing) , Folly (Familial , Hypersharing)
 
 Poob is my main f/o. I love my f/os equally:)
 
