@@ -7,7 +7,7 @@ C+H , w2i , Int , Do not cover entirely unless with permission.
 
 Profic , Proshipper / Darkshipper.
 
-Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers . 
+Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers [Targeted]
 
 (New account since I do not want to associate with those people again.)
 
