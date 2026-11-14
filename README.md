@@ -1,5 +1,5 @@
 
-Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. NULL fans or regretevator fandom feel free to interact. 
+Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. Darkshippers int freely.
 
 Lithromantic 
 
@@ -7,7 +7,7 @@ Null fictionkin.
 
 C+H , w2i , Int , Do not cover entirely unless with permission.
 
-Profic , Proshipper / Darkshipper.
+Profic , Proshipper / Darkshipper , Boundary breaker , Sh❤️tacon
 
 Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers
 
