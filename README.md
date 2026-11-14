@@ -1,12 +1,11 @@
-" It's great to finally meet you. "
 
 Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. NULL fans or regretevator fandom feel free to interact. 
 
-I see myself as NULL. 
+Null fictionkin. Twinkins dni.
 
 C+H , w2i , Int , Do not cover entirely unless with permission.
 
-Profic , Proshipper / Darkshipper. Block me if you wish.
+Profic , Proshipper / Darkshipper.
 
 (New account since I do not want to associate with those people again.)
 
