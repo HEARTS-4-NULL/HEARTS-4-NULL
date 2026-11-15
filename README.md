@@ -5,7 +5,7 @@ Lithromantic
 
 Null fictionkin.
 
-C+H , w2i , Int , Do not cover entirely unless with permission.
+C+H , w2I preferred
 
 Profic , Proshipper / Darkshipper , BB , Sh🫶tacon 
 
