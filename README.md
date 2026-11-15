@@ -1,5 +1,5 @@
 
-Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. Darkshippers int freely.
+Call me Keith / Sylus or you can just call me NULL. I love to do many things such as hanging out with people and drawing. Any pronouns but I prefer They / it. I am fine with interacting, I don't mind it. Partychicken and Eggbu shippers int
 
 Lithromantic 
 
@@ -7,9 +7,9 @@ Null fictionkin.
 
 C+H , w2i , Int , Do not cover entirely unless with permission.
 
-Profic , Proshipper / Darkshipper , Boundary breaker , Sh❤️tacon
+Profic , Proshipper / Darkshipper , Boundary breaker , Sh🫶tacon 
 
-Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers
+Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers , 
 
 (New account since I do not want to associate with those people again.)
 
@@ -23,10 +23,3 @@ Hopefully we can get along .
 
 
 Thank you for your time. 
-
-.
-.
-.
-.
-
-[M.Mark . ships dniucf] I dont proship anymore gen leave me alone 
