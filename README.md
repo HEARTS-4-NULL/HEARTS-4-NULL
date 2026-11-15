@@ -7,13 +7,13 @@ Null fictionkin.
 
 C+H , w2i , Int , Do not cover entirely unless with permission.
 
-Profic , Proshipper / Darkshipper , Boundary breaker , Sh🫶tacon 
+Profic , Proshipper / Darkshipper , BB , Sh🫶tacon 
 
-Dni: Antis . doubles . Twinkins . Homophobes . Anyone shipped with Poob (except Null) . Wallmark shippers , 
+Dni: Antis . doubles . Twinkins . BW . Homophobes . Anyone shipped with Poob (except Null) . Follynull shippers
 
 (New account since I do not want to associate with those people again.)
 
-Here is my yume list: Poob (Nullsharing) , Sayori (Non-sharing) , Facty (Sharing) , Ragatha (Selective) , Wallter (Non-sharing) , Folly (Familial , Hypersharing)
+Here is my yume list: Poob (Nullsharing) , Sayori (Non-sharing) , Facty (Sharing) , Ragatha (Selective) , Wallter & Soulvester (Void-sharing)
 
 Poob is my main f/o. I love my f/os equally:)
 
